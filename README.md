@@ -1,0 +1,2 @@
+# premium-camping-planner-001-camping-outdoor-adventure-pl
+Tired of scrambling to find your tent stakes or forgetting the camp stove fuel for the third time this season? Stop letting disorganized gear and scattered notes ruin your weekend escape.  The Camping &amp; Outdoor Adventure Planner - Notion Template is your all-in-one command center that transforms trip chaos into a calm, repeatable system. It solves
